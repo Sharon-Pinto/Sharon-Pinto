@@ -17,9 +17,9 @@ Skilled in leadership, strategic planning, and collaboration to achieve goals ef
 <br/>
 **🔗Reach me at:<br/>**
 
-![360_F_395391650_6LfU41V5A4WIhdTis899OaF7wXVgThgP](https://github.com/Erica-pinto/Erica-Pinto/assets/131152857/a1006237-c088-4c18-b12b-146ec2d92442) https://www.linkedin.com/in/erica-pinto-147902268/   
+![360_F_395391650_6LfU41V5A4WIhdTis899OaF7wXVgThgP](https://github.com/Erica-pinto/Erica-Pinto/assets/131152857/a1006237-c088-4c18-b12b-146ec2d92442) https://www.linkedin.com/in/sharon-pinto-28a852295/
 
-![88e14cc7e7fcbb0e0e09de26cec86c61](https://github.com/Erica-pinto/Erica-Pinto/assets/131152857/1b8a781c-90e4-42b3-b7fe-a74412c24a33) ericapinto47@gmail.com <br/>
+![88e14cc7e7fcbb0e0e09de26cec86c61](https://github.com/Erica-pinto/Erica-Pinto/assets/131152857/1b8a781c-90e4-42b3-b7fe-a74412c24a33) sharonpin55@gmail.com <br/>
 <br/>
 <br/>
 **Tools, Languages and Skills:** <br/>
