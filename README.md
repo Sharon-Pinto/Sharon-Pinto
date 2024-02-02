@@ -1,4 +1,4 @@
-### Hi there, I'm Sharon 👋
+## Hi there, I'm Sharon 👋
 
 **About me:**
 
