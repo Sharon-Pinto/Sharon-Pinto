@@ -15,7 +15,7 @@ Skilled in leadership, strategic planning, and collaboration to achieve goals ef
 🌟 Hardworking, Self motivated, Dedicated, Leadership.<br/>
 <br/>
 <br/>
-**🔗Reach me at:<br/>**
+**🔗Get in touch with me at:<br/>**
 
 ![360_F_395391650_6LfU41V5A4WIhdTis899OaF7wXVgThgP](https://github.com/Erica-pinto/Erica-Pinto/assets/131152857/a1006237-c088-4c18-b12b-146ec2d92442) https://www.linkedin.com/in/sharon-pinto-28a852295/
 
